@@ -6,4 +6,4 @@
 **PUT PROXIES BEST TO BAN MEMBERS 1K IN JUST 5 SECOND**
 
 
-<img src="https://drive.google.com/file/d/1M0G2V05Y5ySRslNpbtbENUPdD0-l2SPe/view?usp=sharing"/> **To Check How It Works**
+<video src="https://drive.google.com/file/d/1M0G2V05Y5ySRslNpbtbENUPdD0-l2SPe/view?usp=sharing"/> **To Check How It Works**
